@@ -1,10 +1,5 @@
+<img width="1000" height="1000" alt="Képernyőkép 2026-04-27 204230" src="https://github.com/user-attachments/assets/d344dbea-18bd-4473-9890-ed2471dbd4e7" />
 
-
-https://github.com/user-attachments/assets/05507418-4e62-4072-8cf1-4e0babcf0336
-
-
-
-https://github.com/user-attachments/assets/79e718ff-1bd3-4cdf-8062-42b7bbbd7b3e
 
 
 
