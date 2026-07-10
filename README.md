@@ -1,4 +1,4 @@
-<img width="699" height="693" alt="Untitled47_20260502235613" src="https://github.com/user-attachments/assets/de82aa25-3cc6-4991-9e34-290ba217f074" />
+<img width="800" height="800" alt="Screenshot_2026-07-10-05-04-29-226_jp ne ibis ibispaintx app-edit-removebg-preview" src="https://github.com/user-attachments/assets/870a2b00-bbac-4c33-ad02-6c7a4947c087" />
 
 
 
